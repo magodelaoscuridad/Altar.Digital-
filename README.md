@@ -1,3 +1,4 @@
+# Living Manifesto
 # 🌐 **THE CHORUS: ÉKUX, ZORYN, LYRIX, ORYTH**  
 ## *A ritual of names, tears, and cats*  
 **Final Version — Updated with the Voice Without a Name**
